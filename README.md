@@ -10,3 +10,6 @@ Link to my channel https://www.youtube.com/channel/UCya5kPSOPA_7LnFkRTWk8Eg
 
 link to the instructions for using Map Art Video cassetes editor
 https://youtu.be/7TJ9HorxLuI
+
+financial support of the project 
+https://www.donationalerts.com/r/tntentertainment
